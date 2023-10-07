@@ -1,2 +1,2 @@
-# Purab777.github.io
+# Purab7.github.io
 Portfolio Website
